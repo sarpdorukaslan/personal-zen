@@ -1,4 +1,4 @@
-Hey, hayat hızlıca geçiyor. Dünyada neredeyse 40 yıl geçirdim. Güzel bir eşim ve 2 çocuğum var. Hayat hakkındaki anlayışım hakkında bir sürü sözcük topladım ve paylaşmanın doğru zamanı olduğunu hissediyorum. Aşağıdaki tüm noktalar, hayata bakışıma, profesyonel serüvenime, aile vb. özgüdür. Dolayısıyla bu noktaların hiç birini kabul etmemeniz normaldir. Esasen çocuklarımın gelecğine önem veriyorum ve bu noktalar esasen onlar için.
+Hey, hayat hızlıca geçiyor. Dünyada neredeyse 40 yıl geçirdim. Güzel bir eşim ve 2 çocuğum var. Hayat hakkındaki anlayışım hakkında bir sürü sözcük topladım ve paylaşmanın doğru zamanı olduğunu hissediyorum. Aşağıdaki tüm noktalar, hayata bakışıma, profesyonel serüvenime, aile vb. özgüdür. Dolayısıyla bu noktaların hiç birini kabul etmemeniz normaldir. Esasen çocuklarımın geleceğine önem veriyorum ve bu noktalar esasen onlar için.
 
 * Eğer birisi yardım isterse, yardım et.
 * Ürettiğiniz ürünün kalitesine odaklan
